@@ -1,1 +1,1 @@
-![alt text](foto.png)
+![alt text](finaltype.gif)
